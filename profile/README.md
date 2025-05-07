@@ -5,9 +5,13 @@
 ## 🔗 Stay Connected
 
 Follow Us:
-📧How to reach  us **soukcentral.growth@gmail.com**
-📱 [https://x.com/Souk_xyz]  
-💬 [Discord / Telegram]
+- 📧How to reach  us **soukcentral.growth@gmail.com**
+
+- 📱 [https://x.com/Souk_xyz]
+  
+- 💬 [Discord: https://discord.gg/CZtJ2JWK]
+  
+- 
 
 Coming soon:  
 🌍 [Website]  
