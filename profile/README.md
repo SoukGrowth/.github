@@ -4,11 +4,13 @@
 ---
 ## 🔗 Stay Connected
 
+Follow Us:
+📧How to reach  us **soukcentral.growth@gmail.com**
+📱 [https://x.com/Souk_xyz]  
+💬 [Discord / Telegram]
+
 Coming soon:  
 🌍 [Website]  
-📧 [Email]  
-📱 [Twitter / X]  
-💬 [Discord / Telegram]
 
 ---
 
